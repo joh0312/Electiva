@@ -19,4 +19,4 @@ John Chacon [@joh0312](https://github.com/joh0312).
   
   ## Historia Técnica EP-002 
 
- ![3](https://user-images.githubusercontent.com/5![](../../Downloads/WhatsApp%20Image%202022-09-08%20at%2020.35.44.jpeg)3822139/189219692-602d209e-61e1-432e-945d-94f0c38f2f2b.jpeg)
+ ![3](https://user-images.githubusercontent.com/5![](https://drive.google.com/drive/folders/1EmEJk0QeJG6ezNHE6b69I7PxDTGlEcZz?usp=sharing)
